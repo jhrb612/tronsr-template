@@ -1,4 +1,5 @@
-Big Chance to get Free $80 bonus of Crypto.com Card
+Big Chance to get Free $80 bonus of Crypto.com Card.
+
 I can give you Free $80 by my cash. 
 This limited offer is on a first come first serve basis, make sure you sign up.
 
