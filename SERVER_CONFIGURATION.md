@@ -1,1 +1,2 @@
-Describe your server configuration
+We don't have any server.
+
