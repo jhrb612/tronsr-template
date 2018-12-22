@@ -1,4 +1,4 @@
-## Platinum Referral Rewards Program
+# Platinum Referral Rewards Program
 
 You can find information about Platinum referral rewards program from this link below.
 https://medium.com/@Crypto.com/enhanced-platinum-referral-rewards-program-launches-bbe227443680
@@ -16,4 +16,4 @@ Use my referral link
 
 platinum.crypto.com/r/ys4f79lhc8 with my referral code: YS4F79LHC8 to claim your bonus.
 
-# My referral code: YS4F79LHC8
+## My referral code: YS4F79LHC8
