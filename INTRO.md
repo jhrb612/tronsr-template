@@ -1,6 +1,6 @@
-Big Chance to get Free $80 bonus of Crypto.com Card.
+Platinum Referral Rewards Program
 
-I can give you Free $80 by cash. 
+I am a Platinum referrer and can share the rewards $80. 
 This limited offer is on a first come first serve basis, make sure you sign up.
 
 Limited less 50 people.
@@ -11,3 +11,7 @@ Use my referral link
 (link: https://platinum.crypto.com/r/ys4f79lhc8) 
 
 platinum.crypto.com/r/ys4f79lhc8 with my referral code: YS4F79LHC8 to claim your bonus.
+
+You can find information about Platinum referral rewards program from this link below.
+https://medium.com/@Crypto.com/enhanced-platinum-referral-rewards-program-launches-bbe227443680
+
