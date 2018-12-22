@@ -16,3 +16,4 @@ Use my referral link
 
 platinum.crypto.com/r/ys4f79lhc8 with my referral code: YS4F79LHC8 to claim your bonus.
 
+# My referral code: YS4F79LHC8
