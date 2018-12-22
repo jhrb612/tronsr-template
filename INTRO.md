@@ -1,4 +1,4 @@
-Platinum Referral Rewards Program
+## Platinum Referral Rewards Program
 
 You can find information about Platinum referral rewards program from this link below.
 https://medium.com/@Crypto.com/enhanced-platinum-referral-rewards-program-launches-bbe227443680
